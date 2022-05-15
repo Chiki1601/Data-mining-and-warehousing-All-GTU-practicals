@@ -1,0 +1,1 @@
+# Data-mining-and-warehousing-All-GTU-practicals
